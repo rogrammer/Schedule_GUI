@@ -1,1 +1,1 @@
-![1](https://github.com/rogrammer/Schedule_GUI/assets/96201583/13e52ffd-7242-4535-a351-5a7eaa16e8e0)
+![3](https://github.com/rogrammer/Schedule_GUI/assets/96201583/0df04513-81ab-4188-a806-d96d16cb725d)
